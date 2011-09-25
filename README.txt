@@ -1,0 +1,1 @@
+New Readme because the other read me i made had the wrong fucking syntax, live and learn !
